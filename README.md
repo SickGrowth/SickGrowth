@@ -5,7 +5,7 @@
 - 💞️ I’m looking to collaborate on Blockchain Startup projects, secure a product/services Technical Training position, NFTs and evertything crypto.
 - 💞️ I speak fluently oral and written English as you may have noticed and look to create the firat African Launchpad platform the world has ever known. 
 -    I have a uitility outcome for this project and hope to get funding in order to kickstart the project.
-- 📫 How to reach me ... Kyngwils@gmail.com or WhatsApp: +2348130012131
+- 📫 How to reach me: Kyngwils@gmail.com or WhatsApp: +2348130012131
 
 - My Socials
 - https://www.linkedin.com/in/ubong-kingsley-wilson/
