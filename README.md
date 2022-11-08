@@ -9,7 +9,7 @@
 
 - My Socials
 - https://www.linkedin.com/in/ubong-kingsley-wilson/
-- youtube.com/@sickgrowthmaster
+- https://youtube.com/@sickgrowthmaster
 - https://web.facebook.com/Kyngwils
 - https://twitter.com/Kyngwilson
 - https://t.me/Kyngwils
